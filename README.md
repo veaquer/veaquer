@@ -9,7 +9,7 @@ I'm a passionate developer who loves exploring tech, building things, and contin
 ## 🎯 **Goals**  
 - 💼 **Get into a company** where I can grow as a developer.  
 - 🌍 **Change country**  better place to live.  
-- ❤️ **Find a girlfriend** someday! 😉
+- ❤️ **Find a girlfriend** someday xd
 
 ---
 
